@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Juan Carlos
+- 👀 I’m interested in working remotely abroad in interesting projects and nice people.
+- 💞️ I do love software architecture and development, and I´m a huge fan of Artificial Intelligence and Science.
